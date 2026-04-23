@@ -1,1 +1,3 @@
-# Ntando_Nkuna_Professional_Portfolio
+# Ntando Nkuna : Porfolio
+
+- Network : Email.com/LinkedIn/Medium
